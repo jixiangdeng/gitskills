@@ -1,1 +1,1 @@
-# gitskills for clone from GitHub repo
+# gitskills for clone from GitHub repository.
