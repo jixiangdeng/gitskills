@@ -1,2 +1,2 @@
 # gitskills
-可以的有AA
+可以的有AV watching
