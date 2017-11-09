@@ -1,2 +1,2 @@
 # gitskills
-可以的有AV watching
+可以的有AV watching TV
